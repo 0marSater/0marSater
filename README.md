@@ -76,7 +76,7 @@
 </p>
 
 
-- Linked-In [Omar Mohamed](https://www.linkedin.com/in/omarrmohamedd)
+- Linked-In [Omar Sater](https://www.linkedin.com/in/omarrmohamedd)
 - Gmail omar.buis22@gmail.com
 
 
